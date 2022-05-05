@@ -1,4 +1,4 @@
-# 神暗之义·第二章
+# 神暗之义·第三章
 <img src="http://i0.hdslb.com/bfs/article/6f91bf4905c5f39c938e0cf74c4458609ecc7576.jpg@140w_186h.webp">
 
 
