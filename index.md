@@ -1,1 +1,4 @@
-<a href="https://hunmengyuanxue.github.io/read/shen'an">点击阅读</a>
+# 魂梦怨雪·个人图书馆
+## 神暗之义
+<img src="http://i0.hdslb.com/bfs/article/6f91bf4905c5f39c938e0cf74c4458609ecc7576.jpg"><a href="https://hunmengyuanxue.github.io/read/shen'an">点击阅读</a>
+<br/><p>神与魔，不是善与恶。神也有恶的一面，他们也许在以正义为旗帜，去摧残所谓“妖魔”。所谓黑暗，也许亦不过是为光明所迫。神与暗的真正意义，又有谁可读懂？若化作那一方之影，也必将向世人宣告：即便是暗，也可代表这世间的真理，与那些神祗殊死较量一番。真正的暗，也许可与光共存，但永不会为所谓的虚假“正义”所赶尽杀绝！<p/>
